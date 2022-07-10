@@ -17,10 +17,10 @@ Content creator Sheba Entertainment.
 Pronouns: She/her😄 
 
 ⚡ Fun fact
-I am a recording and performing artiste. I love music a lot.
-I love solving problems.
-I want to make an impact in my generation.
-I hope you dance to my song one day😄
+-I am a recording and performing artiste. I love music a lot.
+-I love solving problems.
+-I want to make an impact in my generation.
+-I hope you dance to my song one day😄
 ## 🚀 About Me
 I'm a Data Scientist & Content Creator  - I love providing solutions to real life problems, and helping grow business.
 
