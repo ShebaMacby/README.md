@@ -1,7 +1,7 @@
 # Hi everyone, I am Sheba.
 
 
-I am a Netherlands Born Data Scientist, and Content Creator currently in Nigeria. I love providing solutions to real life problems, and helping grow business.
+I am a Netherlands Born Data Scientist, and Content Creator currently in Nigeria. I love providing solutions to real life problems, and helping grow businesses.
 
 Data Scientist at Bepec,
 Content creator Sheba Entertainment.
