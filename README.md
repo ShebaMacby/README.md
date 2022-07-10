@@ -9,10 +9,10 @@ Content creator Sheba Entertainment.
 💬 Ask me about solving real life problems, dealing with big data, building models, and different Algorithms.
 
 📫 How to reach me:
-Website - shebaentertainment.com
-LinkedIn - Sheba Macby
-YouTube - ShebaMacby
-Twitter - @smacby
+ - [Sheba Entertainment](https://www.shebaentertainment.com)
+ - [Youtube: Sheba Macby](https://www.youtube.com/channel/UC3Ya6fr0HXR-3IlMyycElWw)
+ - [Twitter - @smacby](https://www.twitter.com/smacby)
+ - [LinkedIn](https://linkedin.com/in/shebamacby)
 
 Pronouns: She/her😄 
 
